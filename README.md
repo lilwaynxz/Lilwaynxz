@@ -17,3 +17,5 @@
 me close superduper bff's !! @bannysuperman @JAWS0DEATH MWAH MWAH !! 
 
 <img width="734" height="272" alt="fecb3eb5ab6da24d066fb137d423d5fc" src="https://github.com/user-attachments/assets/0b193421-9c5c-4a06-aea7-a63bca63ea60" />
+
+dni people in this age group ! - basically just preteens or 14 year olds ! ××∆
