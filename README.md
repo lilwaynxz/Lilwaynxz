@@ -1,4 +1,4 @@
-## IM NIGHTWING !!!
+ IM NIGHTWING !!!
 
 <img width="736" height="1104" alt="898a2231c7f9678e0eed32a37900ef8f" src="https://github.com/user-attachments/assets/47e28440-e4ab-4ce5-b220-9e798a3aeb9c" />
 
@@ -19,3 +19,9 @@ me close superduper bff's !! @bannysuperman @JAWS0DEATH MWAH MWAH !!
 <img width="734" height="272" alt="fecb3eb5ab6da24d066fb137d423d5fc" src="https://github.com/user-attachments/assets/0b193421-9c5c-4a06-aea7-a63bca63ea60" />
 
 dni people in this age group ! - basically just preteens or 14 year olds ! ××∆
+
+<img width="736" height="736" alt="eb2d0119ca986b70f22400d34fd1ea17" src="https://github.com/user-attachments/assets/acaf784e-13cf-461f-a575-e9114c5954ec" />
+
+
+TYSM @ShArLyHoPkInS for being the Starfire to my Nightwing in gh !! mwah mwah mwah I wob u !! ^^ 💥 bff irl also ! follow herr plzzz she so nice ××
+
