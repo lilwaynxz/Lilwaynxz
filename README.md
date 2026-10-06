@@ -25,3 +25,8 @@ dni people in this age group ! - basically just preteens or 14 year olds ! ××�
 
 TYSM @ShArLyHoPkInS for being the Starfire to my Nightwing in gh !! mwah mwah mwah I wob u !! ^^ 💥 bff irl also ! follow herr plzzz she so nice ××
 
+
+<img width="736" height="981" alt="7604def181cc24386b5c042a2aa6cec6" src="https://github.com/user-attachments/assets/29d135c5-cafc-4701-9d15-8ff46c7a7088" />
+
+
+disability - autism level one I may seem fine but I do have autism !! I can be mean to a character you like for fun like I will say " this character built like - " or something!! if you can't take jokes dni plz ^^ also dnt and iwec if you are faking being autistic or mentally ill for attention , it's kinda rude to fake being autistic and mentally ill because some people r so...yeh idk . I LOVE NIGHTWING !! (BTW ME IRL) ∆∆
