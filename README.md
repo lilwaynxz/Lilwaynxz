@@ -8,7 +8,7 @@
 ` DNI - problematic , annoying , thinks they are better then everyone , trolls , beef with me , weird people , darkshippers , shippers who go way to far with the ship , people who fake being mentally ill and fake having autism ?...idk but I think some ppl are so.. 
 
 
-disability - autism level one , I do have autism ! i do act fine but I will probably repeat the same words if I think you didn't get what I said , and I will probably bully a character u like for fun as a joke . if you have problem with how I am DNI ^^ 
+disability - autism level one , I do have autism ! i do act fine but I will probably repeat the same words if I think you didn't get what I said , and I will probably bully a character u like for fun as a joke . if you have problem with how I am DNI ^^ also I do get upset easily?? idk but if I think you didn't mean it as a joke I will crash out and stop talking to you , or I will be mean to you to be silly if I don't care what you said but it still hurt a lil. ×
 
 
 <img width="736" height="737" alt="a771fee39225fa07038a0e6b3626e258" src="https://github.com/user-attachments/assets/571fe5ee-006c-438e-a531-c9761374c1c5" />
