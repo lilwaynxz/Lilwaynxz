@@ -18,5 +18,5 @@ disability - autism level one , I do have autism ! i do act fine but I will prob
 what I like rn - football , Riley , close friends , nightwing , bracelets , electric guitar's , goofy ah shi , and some other shi I will probably put in my strawpage if I make one 
 
 
-close friends - @bannysuperman @JAWS0DEATH @paletteneka - and my party ( 0 _ 0~ ) 
+close friends - @bannysuperman @JAWS0DEATH @paletteneka - hood-net ` and my party 🎉 ( 0 _ 0~ ) 
 
