@@ -1,4 +1,4 @@
- `   juliann × 
+I'm `   juliann × 
 
 
   <img width="735" height="924" alt="71ed507eddcc6811b2bfffcc2925d2fd" src="https://github.com/user-attachments/assets/b6fe135f-17c9-4ef6-987e-2d75e70d0618" />
@@ -27,4 +27,4 @@ close friends - @bannysuperman @JAWS0DEATH @paletteneka - hood-net ` and my part
 
 this is personal information about me that I will update when im not lazy 
 
-` I'm 16 about to be 17 on dec 27 . autistic and ADHD kid . small friends group . is Korean and American not gonna spread anymore information about that because most people reading this are not @bannysuperman @JAWS0DEATH or @paleteneka or my party 🎉 
+` I'm 16 about to be 17 on dec 27 . autistic and ADHD kid . small friends group . is Korean and American not gonna spread anymore information about that because most people reading this are not @bannysuperman @JAWS0DEATH @palettenka - (on my mama I swear I keep forgetting how to spell his name) hood-net or my party 🎉 
