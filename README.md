@@ -1,11 +1,11 @@
-I'm `   juliann × 
+저는 줄리앤이에요 ° × 
 
 
   <img width="735" height="924" alt="71ed507eddcc6811b2bfffcc2925d2fd" src="https://github.com/user-attachments/assets/b6fe135f-17c9-4ef6-987e-2d75e70d0618" />
 
 
 
-` DNI - problematic , annoying , thinks they are better then everyone , trolls , beef with me , weird people , darkshippers , shippers who go way to far with the ship , people who fake being mentally ill and fake having autism ?...idk but I think some ppl are so.. 
+` DNI - problematic , annoying , thinks they are better then everyone , trolls , beef with me , weird people , darkshippers , shippers who go way to far with the ship , people who fake being mentally ill and fake having autism ?...idk but I think some ppl are so.. 안녕 !!!
 
 
 disability (this is a fix if u already seen the first lol) - autism level one , and ADHD !! I was diagnosed with autism at 6 and diagnosed with adhd at 3 (I didn't put this in the first time because I was lazy and I thought people would know I have adhd due to how I act) due to my autism I will say the same words sometimes if I think you didn't see the text and I will spam say it so I tend to like people who listen to me and don't ignore me.
@@ -19,8 +19,10 @@ my adhd can make me very talkative, hyper, and will say stuff on the spot if I n
 
 what I like rn - football , Riley , close friends , nightwing , bracelets , electric guitar's , goofy ah shi , and some other shi I will probably put in my strawpage if I make one 
 
+내가 좋아하는 DC 캐릭터들 ' dink grayson 아아 , Tim drake , duke thomas , Jason todd ×∆
 
-close friends - @bannysuperman @JAWS0DEATH @paletteneka - hood-net ` and my party 🎉 ( 0 _ 0~ ) 
+
+close friends - @bannysuperman @JAWS0DEATH @paletteneka - hood-net ` and my party 🎉 ( 0 _ 0~ ) ×∆
 
 <img width="622" height="526" alt="4ac2f88589447bd6724807f6926eeb9f" src="https://github.com/user-attachments/assets/ece23f4b-d198-496e-90cd-131688e95a08" />
 
