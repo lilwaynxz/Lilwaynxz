@@ -2,9 +2,6 @@
 
 
 
-```diff
-autistic boi
-```
 
 
 
@@ -16,27 +13,9 @@ autistic boi
 
 
 
-` dni - problematic , assholes , trolls , 20+ ppl unless already friends but have to be close if your not iwec ×
+` dni - problematic , assholes , trolls , 20+ ppl unless already friends but have to be close if your not iwec ^ ∆
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+<img width="498" height="366" alt="damian-wayne-dc" src="https://github.com/user-attachments/assets/b20bd8da-b746-452d-b55f-62988dad0e2c" />
 
 
 close - @bannysuperman @JAWSODEATH @palleteneka @hood-net
