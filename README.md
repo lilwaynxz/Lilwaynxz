@@ -1,7 +1,8 @@
 저는 줄리앤이에요 ° × 
 
 
-  <img width="736" height="670" alt="30ec8f517624a8f6b2b0cbcf0ccb8476" src="https://github.com/user-attachments/assets/89f4c223-7af3-46d2-9dc2-eb6806016f9a" />
+  <img width="735" height="802" alt="8a34eae2e9fd10c5b102123b296dfe70" src="https://github.com/user-attachments/assets/1ea993b1-b003-4bea-a7fd-a072f73d4963" />
+
 
 
 
