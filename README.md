@@ -1,4 +1,4 @@
-I'm저는 줄리앤이에요 ° × 
+I'm 저는 줄리앤이에요 ° × 
 
 
 
@@ -17,9 +17,14 @@ I'm저는 줄리앤이에요 ° ×
 
 
 
-∆ ` me autistic boi × ^
+∆ ` me autistic boi × ^ 
 
 <img width="498" height="366" alt="damian-wayne-dc" src="https://github.com/user-attachments/assets/b20bd8da-b746-452d-b55f-62988dad0e2c" />
 
 
 close - @bannysuperman @JAWSODEATH @palleteneka @hood-net
+
+
+
+ 
+ `might look weird on pc
