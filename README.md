@@ -26,5 +26,5 @@ close - @bannysuperman @JAWSODEATH @palleteneka @hood-net
 
 
 
- 
+ | phone user 🦇 ×
  `might look weird on pc
