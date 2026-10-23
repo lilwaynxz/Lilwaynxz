@@ -13,12 +13,16 @@ I'm 저는 줄리앤이에요 ° ×
 
 
 
-` dni - problematic , assholes , trolls , 20+ ppl unless already friends but have to be close if your not iwec ^ ∆
+` dni - just dni if your annoying or problematic or are weird with ships idfk ?
 
 
 
 ∆ ` me autistic boi × ^ 
 
+'
+
+
+  ob-jec-jec-objection
 <img width="498" height="366" alt="damian-wayne-dc" src="https://github.com/user-attachments/assets/b20bd8da-b746-452d-b55f-62988dad0e2c" />
 
 
