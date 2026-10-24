@@ -28,7 +28,9 @@ I'm 저는 줄리앤이에요 ° ×
 
 close - @bannysuperman @JAWSODEATH @palleteneka @hood-net
 
-
+' 
+I think we're getting off track ! you just keep pulling me awayyy!~ " chikki chikki cha chikki chikki chaa 
+×
 
  | phone user 🦇 ×
  `might look weird on pc
