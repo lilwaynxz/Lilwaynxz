@@ -3,4 +3,4 @@
 •wip
 
 
-my actual name is allesrondo or AJ I just put juliann because of a family member that died and I wanted to be loyal 😭😭😭🤝
+my actual name is allesrondo or for short AJ I just put juliann because of a family member that died and I wanted to be loyal 😭😭😭🤝
