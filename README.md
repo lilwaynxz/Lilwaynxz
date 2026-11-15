@@ -1,19 +1,21 @@
 ****
 ****
  
-<img width="736" height="245" alt="Untitled59_20261104215555" src="https://github.com/user-attachments/assets/cd8ce219-d03a-4f4c-a7a8-25c5b0e03b8f" />
-
-
-****
-****
-
-<img width="736" height="736" alt="Untitled58_20261104215256" src="https://github.com/user-attachments/assets/11336f47-e32d-4439-a0b8-02e2c1b99749" />
+<img width="440" height="440" alt="Untitled71_20261115125845" src="https://github.com/user-attachments/assets/9273cbba-51f9-466c-b9e2-b7e3da893654" />
 
 
 
 ****
 ****
-<img width="736" height="245" alt="Untitled60_20261104215755" src="https://github.com/user-attachments/assets/f5cd43b5-7c9b-46fc-92b2-81ff5c61d324" />
+
+ <img width="300" height="300" alt="Untitled72_20261115125912" src="https://github.com/user-attachments/assets/110f2eb4-2aeb-4562-9d98-08cfb434e7d1" />
+
+
+
+
+****
+****
+ <img width="440" height="440" alt="Untitled71_20261115125845" src="https://github.com/user-attachments/assets/da173de3-28c2-4088-a423-fae6ecd583f7" />
 
 
 ****
